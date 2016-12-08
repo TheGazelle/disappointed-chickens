@@ -1,2 +1,10 @@
-# disappointed-chickens
-The Disappointed Chickens Repo
+# The Disappointed Chickens
+TONIGHT
+ONE NIGHT ONLY
+*The Disappointed Chickens *
+PLAY THEIR GREATEST HITS
+INCLUDING
+PROCESSHOLE
+I LLOVE LLAMAS
+FULL OF HAPPINESS
+AND MORE...
