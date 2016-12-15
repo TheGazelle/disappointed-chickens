@@ -11,6 +11,7 @@ INCLUDING
 [FULL OF HAPPINESS](songs/Full of Happiness.md)  
 [THANKS FOR THE RACCOON ANUS](songs/Thanks for the Raccoon Anus.md)  
 [RACHEL'S LAMENT (THE LAUNDRY SONG)](songs/Rachel's Lament (the laundry song).md)  
-[BONE CHILLS AND HOT SWEATS](songs/Bone Cold Chills and Hot Sweats.md)..
+[BONE CHILLS AND HOT SWEATS](songs/Bone Cold Chills and Hot Sweats.md)  
+[TROUT SHOULDERED](songs/Trout Shouldered.md)..
 
 AND MORE...  
